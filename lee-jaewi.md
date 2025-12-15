@@ -18,7 +18,7 @@ The film <The Gift of Room 7> is a touching story about a pure-hearted intellect
 
 (https://www.youtube.com/watch?v=TlmunBzDNjM&list=RDTlmunBzDNjM&start_radio=1&pp=ygUWQWRlbGUg4oCTIOKAnEFsbCBJIEFza6AHAQ%3D%3D) Adele's "All I Ask" is a song with a desperate desire to "Please leave us special if this is the last night." The reason why this goes well with the father-daughter relationship in Room 7 is that even in the movie, the father values the last moment he spent with his daughter so much that he wants to leave it as a good memory to look back on later
 
-Adele의 “All I Ask”는 “이게 마지막 밤이라면 우리 사이 좀 특별하게 남겨달라”는 간절한 바람을 담은 노래이다. 이게 [7번방의 선물의](https://www.youtube.com/watch?v=TlmunBzDNjM&list=RDTlmunBzDNjM&start_radio=1&pp=ygUWQWRlbGUg4oCTIOKAnEFsbCBJIEFza6AHAQ%3D%3D) 아버지와 딸 관계랑 어울리는 이유는, 영화에서도 아버지가 딸 과 보낸 마지막 순간을 너무 소중하게 여기고, 나중에 돌아볼 수 있는 좋은 기억으로 남기고 싶어하는 마음이 강하게 그려지기 때문이다
+Adele의 “All I Ask”는 “이게 마지막 밤이라면 우리 사이 좀 특별하게 남겨달라”는 간절한 바람을 담은 노래이다. 이게 [7번방의 선물](https://www.youtube.com/watch?v=TlmunBzDNjM&list=RDTlmunBzDNjM&start_radio=1&pp=ygUWQWRlbGUg4oCTIOKAnEFsbCBJIEFza6AHAQ%3D%3D) 아버지와 딸 관계랑 어울리는 이유는, 영화에서도 아버지가 딸 과 보낸 마지막 순간을 너무 소중하게 여기고, 나중에 돌아볼 수 있는 좋은 기억으로 남기고 싶어하는 마음이 강하게 그려지기 때문이다
 
 [https://www.youtube.com/watch?v=k4V3Mo61fJM&list=RDk4V3Mo61fJM&start_radio=1&pp=ygUQZml4IHlvdSBjb2xkcGxheaAHAQ%3D%3D] This song is made by the composer to convey comfort and healing when a loved one suffers from "deep sadness and loss." It is one of my favorite music, and the atmosphere of the song itself is calm and calm. It is a structure in which the lyrics process of the song leads from calm sadness to comfort hope.
 
