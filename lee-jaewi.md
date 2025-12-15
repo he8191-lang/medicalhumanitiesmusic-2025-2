@@ -33,7 +33,9 @@ Furthermore, the act of choosing one’s funeral music in advance, as discussed 
 
 더 나아가, 수업에서 논의된 ‘자신의 장례식 음악을 미리 선택하는 행위’는 죽음을 단순한 종말이 아니라, 삶의 총체적 의미와 정체성을 음악이라는 비청각적 표현으로 남기려는 시도로 해석될 수 있다. 이러한 관점에서 볼 때, 7번방의 선물은 소통의 단절과 음악적·정서적 표현이 결합되는 지점을 통해 질병·장애·고통·죽음이라는 인간 경험의 경계에서 소통과 치유의 가능성을 확장하는 예술의 역할을 학술적으로 뒷받침하는 작품이라 할 수 있다.
 
+Miracle in Cell No. 7 and [Sound of Metal](jeonjunwoo2584) both portray disability not as an individual defect but as suffering shaped by social systems of communication, using music and silence as non-verbal expressions to sensitively reveal loss, love, and human dignity.
 
+영화 7번방의 선물과 [사운드 오브 메탈](jeonjunwoo2584)은 장애를 개인의 결함이 아닌 사회적 소통 구조 속에서 발생하는 고통으로 그리며, 음악과 침묵 같은 비언어적 표현을 통해 상실과 사랑, 인간의 존엄을 섬세하게 드러낸다는 공통점을 지닌다.
 
 # 나의 장레식에서 연주되길 희망하는 음악
 
